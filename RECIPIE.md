@@ -1,0 +1,2 @@
+In a large bowl, combine the milk, sugar, coconut, eggs, flour, butter and vanilla. Pour into pie shell.
+Bake at 350° for 50 minutes or until a knife inserted in the center comes out clean. Cool to room temperature. Refrigerate leftovers.
